@@ -1,5 +1,7 @@
 # DISCLAIMER
-i dont mean to offend/cause trouble in the community, just did this for fun :)
+Random Bozo Leaked a Fake Injector, brain dead :(, Cant see its nothing.
 
-# CREDITS
-Client by XS (aka Ender Crystal on YouTube), leaked to me by google_was_my_idea (303)
+# Bozo Dont DownLoad Its Fake
+You May check the client src its fake and can't do anything. Dont FAll FOR IT.
+
+# Team X$ ON Top
